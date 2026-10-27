@@ -1,0 +1,1 @@
+[![Reviewed on ScriptBlox](https://scriptblox.com/badge/ZOMBIES-Warfare-Tycoon-OP-script-keyless-open-source-233392)](https://scriptblox.com/script/ZOMBIES-Warfare-Tycoon-OP-script-keyless-open-source-233392)
